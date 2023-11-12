@@ -6,3 +6,5 @@
 
 ![Supporto02](https://github.com/amigamess/Tama-RW105-Metronome-3D-HiHat-Support/assets/82521152/f8a5fa7b-9b47-4158-85f0-fe5dff56f9bf)
 
+![rinforzo](https://github.com/amigamess/Tama-RW105-Metronome-3D-HiHat-Support/assets/82521152/01489e5c-4136-47a8-9b21-5cc37208461b)
+
